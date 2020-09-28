@@ -1,1 +1,1 @@
-[Link](https://dimonovdd.github.io/info/).
+[Link](https://about.dimovdima.ru).
