@@ -1,1 +1,1 @@
-[Link](https://about.dimovdima.ru).
+[Link](https://contacts.dimovdima.ru).
